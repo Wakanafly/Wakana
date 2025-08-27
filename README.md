@@ -1,2 +1,2 @@
 # Wakana
-Welcome to wakana store it safe recharge 
+Welcome to wakana store
